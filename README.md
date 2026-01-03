@@ -1,16 +1,29 @@
-## Hi there 👋
+<p align="center">
+  ──────────
+</p>
 
-<!--
-**panprobfine/panprobfine** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+✦ - hii my name is pan / data !
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
+  ✦ - i have cover discomfort i feel sick when i get coveredd . .
+</p> 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+✦ - mostly offtab
+</p>
+
+<p align="center">
+✦ - eng/rus/ua !
+</p> 
+
+<p align="center">
+⊹ ࣪ ˖
+</p>
+
+<p align="center">
+  ──────────
+</p>
+
+
