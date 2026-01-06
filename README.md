@@ -13,6 +13,10 @@
 </p>
 
 <p align="center">
+✦ - https://en.pronouns.page/@panprobfine
+</p>
+
+<p align="center">
   ✦ - i have cover discomfort i feel sick when i get coveredd . .
 </p> 
 
