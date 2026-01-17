@@ -1,4 +1,4 @@
-<img width="1199" height="672" alt="Image" src="https://github.com/user-attachments/assets/10802d03-3cb4-4626-8db4-ce242cb6fea6" />
+<img width="876" height="376" alt="Image" src="https://github.com/user-attachments/assets/81a0f35e-233b-4c3f-8990-df7ec61cb7a5" />
 
 <p align="center">
   ──────────
@@ -32,6 +32,8 @@ eng/rus/ua !
   ──────────
 </p>
 
-<img width="1165" height="54" alt="Image" src="https://github.com/user-attachments/assets/f16fb35e-91d0-4c7f-90e4-2c485a7fe185" />
+<img width="920" height="116" alt="Image" src="https://github.com/user-attachments/assets/3baa4309-14e2-4504-9965-a4c056baaef6" />
+
+WATCH MINECRAFT ARG BUT THE PROTAGONIST LISTENS TO MUSIC YOU NEED TO UNDERSTAND HOW COOL TERRO IS
 
 ![](https://komarev.com/ghpvc/?username=panprobfine&label=hello+!&style=flat)
