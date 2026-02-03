@@ -57,3 +57,5 @@ eng/rus/ua !
 </p>
 
 <img width="1500" height="654" alt="Image" src="https://github.com/user-attachments/assets/0dd2ef76-3a91-457a-b7d7-4ddfddcbc089" />
+
+![Image](https://github.com/user-attachments/assets/a741257c-d88d-4072-a277-46337b136da0)
