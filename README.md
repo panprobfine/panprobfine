@@ -59,17 +59,3 @@ eng/rus/ua !
 <img width="1500" height="654" alt="Image" src="https://github.com/user-attachments/assets/0dd2ef76-3a91-457a-b7d7-4ddfddcbc089" />
 
 ![Image](https://github.com/user-attachments/assets/a741257c-d88d-4072-a277-46337b136da0)
-
----
-
-if you spot me in cosplays of wemmbu aus!
-
-<img width="237" height="269" alt="Image" src="https://github.com/user-attachments/assets/2d6027f2-e777-4d8f-a29b-1b6bd96e262a" /> 
-> this is mimic wemmbu!
-from https://archiveofourown.org/works/76562271
-
----
-
-<img width="256" height="277" alt="Image" src="https://github.com/user-attachments/assets/c2c76849-e4f9-4f96-ad09-bea66da1921e" />
-> this is violinist wemmbu!
-from https://archiveofourown.org/works/78557556
