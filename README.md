@@ -59,3 +59,12 @@ eng/rus/ua !
 <img width="1500" height="654" alt="Image" src="https://github.com/user-attachments/assets/0dd2ef76-3a91-457a-b7d7-4ddfddcbc089" />
 
 ![Image](https://github.com/user-attachments/assets/a741257c-d88d-4072-a277-46337b136da0)
+
+
+---
+
+ffs where my wemmbu au skins are from!
+
+mimic wemmbu > https://archiveofourown.org/works/76562271
+
+violinist wemmbu > https://archiveofourown.org/works/78557556
