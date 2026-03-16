@@ -30,6 +30,10 @@
 
 <p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/bbfb1918-11c8-4cbc-826c-4f54dbc541ac" />
 
+<p align="center"> $\color{#9AA8B0}{\textsf{byi; my humor might not be for everyone and i know that, so tell me if you dont like it}}$
+
+<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/bbfb1918-11c8-4cbc-826c-4f54dbc541ac" />
+
 <p align="center"> $\color{#9AA8B0}{\textsf{i have cover discomfort i feel sick when i get coveredd . .}}$
 
 <p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/bbfb1918-11c8-4cbc-826c-4f54dbc541ac" />
