@@ -1,53 +1,74 @@
+<img width="1470" height="950" alt="Image" src="https://github.com/user-attachments/assets/488ed067-7955-48a4-96ec-8532a9d39a54" />
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=7A4242&width=435&lines=Sweet+religion!;-;-;-;-;-;-)](https://git.io/typing-svg)
 
 
-<p align="left"> $\color{#7DAAC6}{\textsf{i}}$ $\color{#9AA8B0}{\textsf{am}}$ $\color{#A37DC7}{\textsf{you.}}$
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=7A5942&width=435&lines=-;Blood+is+filling%2C;-;-;-;-;-)](https://git.io/typing-svg)
 
-<p align="center"> $\color{#9AA8B0}{\textsf{and}}$
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=7A7642&width=435&lines=-;-;blood+is+filling!;-;-;-;-)](https://git.io/typing-svg)
 
-<p align="right"> $\color{#A37DC7}{\textsf{you}}$ $\color{#9AA8B0}{\textsf{are}}$ $\color{#7DAAC6}{\textsf{me.}}$
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=457A42&width=435&lines=-;-;-;Sweet+religion!;-;-;-)](https://git.io/typing-svg)
 
-<p align="center"> $\color{#9AA8B0}{\textsf{ - }}$
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=42767A&width=435&lines=-;-;-;-;Persecute+the+weak+and+willing!;-;-)](https://git.io/typing-svg)
 
-<img width="1500" height="986" alt="Image" src="https://github.com/user-attachments/assets/13f46906-94a1-4a8a-b3f1-f47c2e9e3849" />
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=424F7A&width=435&lines=-;-;-;-;-;I've+been+here+so+long..;-)](https://git.io/typing-svg)
 
-<img width="1500" height="986" alt="Image" src="https://github.com/user-attachments/assets/0ed2f9bb-e030-44f1-83db-eb2fa68bdce1" />
-
-<p align="center"> $\color{#9AA8B0}{\textsf{" give}}$ $\color{#7DAAC6}{\textsf{me}}$ $\color{#9AA8B0}{\textsf{that before}}$ $\color{#A37DC7}{\textsf{you}}$ $\color{#9AA8B0}{\textsf{hurt}}$ $\color{#7DAAC6}{\textsf{me .. "}}$
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=57427A&width=435&lines=-;-;-;-;-;-;...For+the+love+of+God!)](https://git.io/typing-svg)
 
 
 
-<img width="1500" height="228" alt="Image" src="https://github.com/user-attachments/assets/2dcdd8fc-cf19-4628-aa7c-15b5b83a1b05" />
 
-<p align="center"> $\color{#9AA8B0}{\textsf{──────────}}$
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/bbfb1918-11c8-4cbc-826c-4f54dbc541ac" />
 
-<p align="center"> $\color{#9AA8B0}{\textsf{hii my name is}}$ $\color{#7DAAC6}{\textsf{pan / data !}}$
+<p align="center"> $\color{#7A4242}{\textsf{-}}$ $\color{#7A5942}{\textsf{-}}$ $\color{#7A7642}{\textsf{-}}$ $\color{#457A42}{\textsf{-}}$ $\color{#42767A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/bbfb1918-11c8-4cbc-826c-4f54dbc541ac" />
 
-<p align="center"> $\color{#9AA8B0}{\textsf{you can also call me by the name of the char my skin is !}}$
+<p align="center"> 
+<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/4cf72c1d-7f26-48a3-89fd-a4031f93cbcf" />
+</p>
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/bbfb1918-11c8-4cbc-826c-4f54dbc541ac" />
+<p align="center"> 
+  $\color{#7A4242}{\textsf{hii my name is pan / data !}}$
+</p>
 
-<p align="center"> $\color{#9AA8B0}{\textsf{byi; my humor might not be for everyone and i know that, so tell me if you dont like it}}$
+<p align="center"> 
+<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/4cf72c1d-7f26-48a3-89fd-a4031f93cbcf" />
+</p>
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/bbfb1918-11c8-4cbc-826c-4f54dbc541ac" />
+<p align="center"> 
+  $\color{#7A5942}{\textsf{you can also call me by the name of the char my skin is !}}$
+</p>
 
-<p align="center"> $\color{#9AA8B0}{\textsf{i have cover discomfort i feel sick when i get coveredd . .}}$
+<p align="center"> 
+<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/4cf72c1d-7f26-48a3-89fd-a4031f93cbcf" />
+</p>
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/bbfb1918-11c8-4cbc-826c-4f54dbc541ac" />
+<p align="center"> 
+$\color{#7A7642}{\textsf{byi; my humor might not be for everyone and i know that, so tell me if you dont like it}}$
+</p>
 
-<p align="center"> $\color{#9AA8B0}{\textsf{mostly offtab}}$
+<p align="center"> 
+<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/4cf72c1d-7f26-48a3-89fd-a4031f93cbcf" />
+</p>
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/bbfb1918-11c8-4cbc-826c-4f54dbc541ac" />
+<p align="center"> 
+  $\color{#457A42}{\textsf{mostly offtab}}$
+</p>
 
-<p align="center"> $\color{#9AA8B0}{\textsf{eng/rus/ua !}}$
+<p align="center"> 
+<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/4cf72c1d-7f26-48a3-89fd-a4031f93cbcf" />
+</p> 
 
-<p align="center"> $\color{#9AA8B0}{\textsf{──────────}}$
+<p align="center"> 
+  $\color{#42767A}{\textsf{eng/rus/ua !}}$
+</p>
 
-<img width="1500" height="822" alt="Image" src="https://github.com/user-attachments/assets/0fcf5308-ba83-4cfa-aa04-bf2e68bce06b" />
+<p align="center"> $\color{#7A4242}{\textsf{-}}$ $\color{#7A5942}{\textsf{-}}$ $\color{#7A7642}{\textsf{-}}$ $\color{#457A42}{\textsf{-}}$ $\color{#42767A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$
 
-<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/bbfb1918-11c8-4cbc-826c-4f54dbc541ac" />
+<img width="1500" height="140" alt="dividertoptop" src="https://github.com/user-attachments/assets/825ffc67-a822-46a7-8b49-105c8b9fcd96" />
 
-$\color{#9AA8B0}{\textsf{uhh h.i.p.s wemmbu / winter is from this ff -}}$ https://archiveofourown.org/works/76562271
+<p align="center"> 
+<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/4cf72c1d-7f26-48a3-89fd-a4031f93cbcf" />
+</p>
+
+$\color{#424F7A}{\textsf{uhh h.i.p.s wemmbu / winter is from this ff -}}$ https://archiveofourown.org/works/76562271
