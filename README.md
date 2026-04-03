@@ -1,4 +1,10 @@
-<img width="1470" height="950" alt="Image" src="https://github.com/user-attachments/assets/488ed067-7955-48a4-96ec-8532a9d39a54" />
+https://github.com/user-attachments/assets/3e4b922b-2694-4c81-b3ea-b419527f026c
+
+$\color{#7A4242}{\textsf{loud warn}}$
+
+<p align="center"> $\color{#7A4242}{\textsf{-}}$ $\color{#7A5942}{\textsf{-}}$ $\color{#7A7642}{\textsf{-}}$ $\color{#457A42}{\textsf{-}}$ $\color{#42767A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$
+
+
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=7A4242&width=435&lines=Sweet+religion!;-;-;-;-;-;-)](https://git.io/typing-svg)
 
