@@ -2,7 +2,7 @@ https://github.com/user-attachments/assets/3e4b922b-2694-4c81-b3ea-b419527f026c
 
 $\color{#7A4242}{\textsf{loud warn}}$
 
-<p align="center"> $\color{#7A4242}{\textsf{-}}$ $\color{#7A5942}{\textsf{-}}$ $\color{#7A7642}{\textsf{-}}$ $\color{#457A42}{\textsf{-}}$ $\color{#42767A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$
+<p align="center"> $\color{#7A4242}{\textsf{-}}$ $\color{#7A5942}{\textsf{-}}$ $\color{#7A7642}{\textsf{-}}$ $\color{#457A42}{\textsf{-}}$ $\color{#42767A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$ $\color{#57427a}{\textsf{-}}$
 
 
 
@@ -13,20 +13,9 @@ $\color{#7A4242}{\textsf{loud warn}}$
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=7A7642&width=435&lines=-;-;blood+is+filling!;-;-;-;-)](https://git.io/typing-svg)
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=457A42&width=435&lines=-;-;-;Sweet+religion!;-;-;-)](https://git.io/typing-svg)
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=42767A&width=435&lines=-;-;-;-;Persecute+the+weak+and+willing!;-;-)](https://git.io/typing-svg)
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=424F7A&width=435&lines=-;-;-;-;-;I've+been+here+so+long..;-)](https://git.io/typing-svg)
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=57427A&width=435&lines=-;-;-;-;-;-;...For+the+love+of+God!)](https://git.io/typing-svg)
 
 
-
-
-
-
-<p align="center"> $\color{#7A4242}{\textsf{-}}$ $\color{#7A5942}{\textsf{-}}$ $\color{#7A7642}{\textsf{-}}$ $\color{#457A42}{\textsf{-}}$ $\color{#42767A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$
+<p align="center"> $\color{#7A4242}{\textsf{-}}$ $\color{#7A5942}{\textsf{-}}$ $\color{#7A7642}{\textsf{-}}$ $\color{#457A42}{\textsf{-}}$ $\color{#42767A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$ $\color{#57427a}{\textsf{-}}$
 
 
 <p align="center"> 
@@ -69,7 +58,18 @@ $\color{#7A7642}{\textsf{byi; my humor might not be for everyone and i know that
   $\color{#42767A}{\textsf{eng/rus/ua !}}$
 </p>
 
-<p align="center"> $\color{#7A4242}{\textsf{-}}$ $\color{#7A5942}{\textsf{-}}$ $\color{#7A7642}{\textsf{-}}$ $\color{#457A42}{\textsf{-}}$ $\color{#42767A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$
+<p align="center"> $\color{#7A4242}{\textsf{-}}$ $\color{#7A5942}{\textsf{-}}$ $\color{#7A7642}{\textsf{-}}$ $\color{#457A42}{\textsf{-}}$ $\color{#42767A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$ $\color{#57427a}{\textsf{-}}$
+
+
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=457A42&width=435&lines=-;-;-;Sweet+religion!;-;-;-)](https://git.io/typing-svg)
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=42767A&width=435&lines=-;-;-;-;Persecute+the+weak+and+willing!;-;-)](https://git.io/typing-svg)
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=424F7A&width=435&lines=-;-;-;-;-;I've+been+here+so+long..;-)](https://git.io/typing-svg)
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=57427A&width=435&lines=-;-;-;-;-;-;...For+the+love+of+God!)](https://git.io/typing-svg)
+
 
 <img width="1500" height="140" alt="dividertoptop" src="https://github.com/user-attachments/assets/825ffc67-a822-46a7-8b49-105c8b9fcd96" />
 
@@ -78,3 +78,8 @@ $\color{#7A7642}{\textsf{byi; my humor might not be for everyone and i know that
 </p>
 
 $\color{#424F7A}{\textsf{uhh h.i.p.s wemmbu / winter is from this ff -}}$ https://archiveofourown.org/works/76562271
+
+$\color{#57427a}{\textsf{this github would've been better if someone wasn't lazy and uncreative}}$
+
+
+![515488f53e5dbf24ed3dfa395d990256](https://github.com/user-attachments/assets/d3e40124-b77b-4470-b7f5-398dba1e7438)
