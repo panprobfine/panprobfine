@@ -1,85 +1,70 @@
-https://github.com/user-attachments/assets/3e4b922b-2694-4c81-b3ea-b419527f026c
+<img width="1470" height="988" alt="Image" src="https://github.com/user-attachments/assets/2e78e403-38fd-4851-bbc9-35c0435b288d" />
 
-$\color{#7A4242}{\textsf{loud warn}}$
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
 
-<p align="center"> $\color{#7A4242}{\textsf{-}}$ $\color{#7A5942}{\textsf{-}}$ $\color{#7A7642}{\textsf{-}}$ $\color{#457A42}{\textsf{-}}$ $\color{#42767A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$ $\color{#57427a}{\textsf{-}}$
+<p align="center"> $\color{#512460}{\textsf{✦}}$
 
+<p align="left"> $\color{#512460}{\textsf{I won't shed a tear anywhere but here.}}$
+  
+<p align="right"> $\color{#49235f}{\textsf{I cover up my eyes and try to disappear.}}$
 
+<p align="left"> $\color{#43215c}{\textsf{Devils misbehaving lead us to the grave,}}$
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=7A4242&width=435&lines=Sweet+religion!;-;-;-;-;-;-)](https://git.io/typing-svg)
+<p align="right"> $\color{#3c1f59}{\textsf{We hold our hands up and we drift away.}}$
 
+<p align="center"> $\color{#3c1f59}{\textsf{✦}}$
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=7A5942&width=435&lines=-;Blood+is+filling%2C;-;-;-;-;-)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=7A7642&width=435&lines=-;-;blood+is+filling!;-;-;-;-)](https://git.io/typing-svg)
-
-
-
-<p align="center"> $\color{#7A4242}{\textsf{-}}$ $\color{#7A5942}{\textsf{-}}$ $\color{#7A7642}{\textsf{-}}$ $\color{#457A42}{\textsf{-}}$ $\color{#42767A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$ $\color{#57427a}{\textsf{-}}$
+<img width="1470" height="500" alt="Image" src="https://github.com/user-attachments/assets/e623036d-a7a7-4154-9e0d-606a00322284" />
 
 
 <p align="center"> 
-<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/4cf72c1d-7f26-48a3-89fd-a4031f93cbcf" />
+<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/996e6d0d-fd5d-41ff-b4f6-98f8a05cf5ea" />
 </p>
 
 <p align="center"> 
-  $\color{#7A4242}{\textsf{hii my name is pan / data !}}$
+  $\color{#512460}{\textsf{hii my name is pan / data !}}$
 </p>
 
 <p align="center"> 
-<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/4cf72c1d-7f26-48a3-89fd-a4031f93cbcf" />
+<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/996e6d0d-fd5d-41ff-b4f6-98f8a05cf5ea" />
 </p>
 
 <p align="center"> 
-  $\color{#7A5942}{\textsf{you can also call me by the name of the char my skin is !}}$
+  $\color{#49235f}{\textsf{you can also call me by the name of the char my skin is !}}$
 </p>
 
 <p align="center"> 
-<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/4cf72c1d-7f26-48a3-89fd-a4031f93cbcf" />
+<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/996e6d0d-fd5d-41ff-b4f6-98f8a05cf5ea" />
 </p>
 
 <p align="center"> 
-$\color{#7A7642}{\textsf{byi; my humor might not be for everyone and i know that, so tell me if you dont like it}}$
+$\color{#43215c}{\textsf{byi; my humor might not be for everyone and i know that, so tell me if you dont like it}}$
 </p>
 
 <p align="center"> 
-<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/4cf72c1d-7f26-48a3-89fd-a4031f93cbcf" />
+<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/996e6d0d-fd5d-41ff-b4f6-98f8a05cf5ea" />
 </p>
 
 <p align="center"> 
-  $\color{#457A42}{\textsf{mostly offtab}}$
+  $\color{#3c1f59}{\textsf{mostly offtab}}$
 </p>
 
 <p align="center"> 
-<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/4cf72c1d-7f26-48a3-89fd-a4031f93cbcf" />
+<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/996e6d0d-fd5d-41ff-b4f6-98f8a05cf5ea" />
 </p> 
 
 <p align="center"> 
-  $\color{#42767A}{\textsf{eng/rus/ua !}}$
+  $\color{#381d56}{\textsf{eng/rus/ua !}}$
 </p>
 
-<p align="center"> $\color{#7A4242}{\textsf{-}}$ $\color{#7A5942}{\textsf{-}}$ $\color{#7A7642}{\textsf{-}}$ $\color{#457A42}{\textsf{-}}$ $\color{#42767A}{\textsf{-}}$ $\color{#424F7A}{\textsf{-}}$ $\color{#57427a}{\textsf{-}}$
-
-
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=457A42&width=435&lines=-;-;-;Sweet+religion!;-;-;-)](https://git.io/typing-svg)
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=42767A&width=435&lines=-;-;-;-;Persecute+the+weak+and+willing!;-;-)](https://git.io/typing-svg)
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=424F7A&width=435&lines=-;-;-;-;-;I've+been+here+so+long..;-)](https://git.io/typing-svg)
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=25&duration=3000&pause=500&color=57427A&width=435&lines=-;-;-;-;-;-;...For+the+love+of+God!)](https://git.io/typing-svg)
-
-
-<img width="1500" height="140" alt="dividertoptop" src="https://github.com/user-attachments/assets/825ffc67-a822-46a7-8b49-105c8b9fcd96" />
-
-<p align="center"> 
-<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/4cf72c1d-7f26-48a3-89fd-a4031f93cbcf" />
+<p align="center">
+<img width="400" height="400" alt="Image" src="https://github.com/user-attachments/assets/1d207fbf-ffeb-47d9-937b-2f98d96c486f" />
 </p>
 
-$\color{#424F7A}{\textsf{uhh h.i.p.s wemmbu / winter is from this ff -}}$ https://archiveofourown.org/works/76562271
-
-$\color{#57427a}{\textsf{this github would've been better if someone wasn't lazy and uncreative}}$
 
 
-![515488f53e5dbf24ed3dfa395d990256](https://github.com/user-attachments/assets/d3e40124-b77b-4470-b7f5-398dba1e7438)
+<img width="1470" height="500" alt="Image" src="https://github.com/user-attachments/assets/d4d7bc66-cf83-41ff-bfff-dfd23d8a169f" />
